@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @yarah-yma1
 - 👀 I’m interested in AI
-- 🌱 I’m currently a student.
+- 🌱 I’m currently a student
